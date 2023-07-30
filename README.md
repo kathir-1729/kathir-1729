@@ -1,0 +1,56 @@
+- 👋 Hi, I’m @kathir
+- This is new github acc for personal projects and learning
+- Currently -> Software enineer
+- Interested -> Anything that challenges my skillset
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
+
